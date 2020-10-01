@@ -1,4 +1,4 @@
-# Design Inspiration & Resources
+# Design marvelous Inspiration & Resources
 
 A collection of websites and assets to spark creativity.
 
